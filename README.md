@@ -1,0 +1,1 @@
+# StukturDataD-pertemuan1
